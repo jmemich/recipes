@@ -6,8 +6,8 @@ This was stolen from a Jamie Olive recipe [book](https://www.amazon.com/Jamies-M
 
 - 2/3 full head of garlic
 - 1 large chili (not jalapeno)
-- ~5 decently sized tomators
-- Large amout of basil (with stalks!)
+- ~5 decently sized tomatoes
+- Large amount of basil (with stalks!)
 - 250g long pasta
 
 ## Prep & cooking
