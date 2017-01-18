@@ -14,7 +14,9 @@ Mum's recipe
 
 Place paper towel in strainer and strainer in sink. Add greek yogurt to strainer. Grate cucumber into second strainer and leave to strain. Both need an ~hour to drain (esp. cucumber). 
 
-When both havei drained combine with finely chopped (raw!) garlic and finely chopped parsley. Squeeze lemon and mix thoroughly.
+When both have drained combine with finely chopped (raw!) garlic and finely chopped parsley. Squeeze lemon and mix thoroughly.
+
+Salt to taste.
 
 ## Notes
 
