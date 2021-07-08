@@ -2,20 +2,19 @@
 
 ## Ingredients 
 
-2 1/2 pounds leeks
-white and light green part only"
-2 bay leaves"
-4 large sprigs fresh thyme"
-4 large sprigs fresh sage"
-4 large sprigs parsley, and chopped leaves for garnish"
-1 large handful celery leaves (optional)"
-4 tablespoons unsalted butter or extra-virgin olive oil"
-2 garlic cloves, peeled and very thinly sliced"
-8 cups vegetable stock or water"
-1 tablespoon kosher salt, more to taste"
-1 teaspoon black pepper, more to taste"
-1 3/4 pounds Yukon Gold potatoes, halved and thinly sliced
-Heavy cream, for serving (optional)"
+2 1/2 pounds leeks (white and light green part only) \
+2 bay leaves \
+4 large sprigs fresh thyme \
+4 large sprigs fresh sage \
+4 large sprigs parsley, and chopped leaves for garnish \
+1 large handful celery leaves (optional) \
+4 tablespoons unsalted butter or extra-virgin olive oil \
+2 garlic cloves, peeled and very thinly sliced \
+8 cups vegetable stock or water \
+1 tablespoon kosher salt, more to taste \
+1 teaspoon black pepper, more to taste \
+1 3/4 pounds Yukon Gold potatoes, halved and thinly sliced \
+Heavy cream, for serving (optional) \
 
 ## Steps
 
