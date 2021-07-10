@@ -25,4 +25,4 @@ Cube eggplant. Salt and leave in strainer for approx 10 minutes while chopping o
 
 Leave on heat for 5-10 minutes, allowing flavours to mix. Roughly chop tomatoes into large chunks. Finely chop celery leaves and oregano. Throw in tomatoes, raisins, oregano, celery leaves and a splash of balsamic vinegar. Cook for another 10(ish) minutes, adding salt to taste.
 
-Serve with protein / grain of choice.
+Serve with protein / grain of choice. Add parsley to garnish.
